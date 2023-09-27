@@ -5,9 +5,14 @@ Brianna Jaqueline Diaz Lopez
 
 Para fomentar la salud sexual y reproductiva durante toda la trayectoria vital, deben reforzarse los servicios en una gran diversidad de sectores, desde los sistemas de salud (incluido el personal sanitario) y educación, hasta incluso los sistemas de transporte
 
+¿Cómo concientizar a los jóvenes sobre la sexualidad?
+
+Expresar claramente tu punto de vista sobre el sexo. Dale la información verdadera sobre los riesgos como el dolor emocional, las infecciones de trasmisión sexual y los embarazos no deseados. Explicale que el sexo oral no es una alternativa sin riesgos al coito. Considera la perspectiva del 
+adolescente.
+
 Creación de programas y servicio en salud pública
 Las charlas en los colegios, las campanas en tv publica, las vallas publicitarias, las clases de educación sexual así
-como os programas de
+como los programas de
 educacion e insercion
 laboral para estas jóvenes suman y mucho
 
@@ -31,5 +36,9 @@ especialmente entre los mas vulnerables
 retraso del inicio de
 la vida sexual 
 Las campañas para contra el embarazo en 
-adolescentes  juegan un papel fundamental al enseñarles a los chicos sobre la educacion sexual, pero especialmente  
+adolescentes  juegan un papel fundamental al enseñarles a los chicos sobre la educacion sexual, pero especialmente, dandoles a entender el comienzo de la vida sexual.
+Hay que recordar que ademas de tener lidiar Con embarazos problematicos, tener
+sexo sin las debidas  medidas de cuidado 
+tambien es un riesgo para a salud de la
+pareja, debido a las enfermedades de transmision sexual y el temido VIH
  
