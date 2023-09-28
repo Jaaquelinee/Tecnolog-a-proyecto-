@@ -8,7 +8,11 @@ Para fomentar la salud sexual y reproductiva durante toda la trayectoria vital, 
 ¿Cómo concientizar a los jóvenes sobre la sexualidad?
 
 Expresar claramente tu punto de vista sobre el sexo. Dale la información verdadera sobre los riesgos como el dolor emocional, las infecciones de trasmisión sexual y los embarazos no deseados. Explicale que el sexo oral no es una alternativa sin riesgos al coito. Considera la perspectiva del 
-adolescente.
+adolescente. Actualmente, surge la necesidad de ofrecer conocimientos sobre el VIH y enfermedades de transmisión sexual
+entre los jóvenes de 15 a 24 años, haciendo hincapié en identificar correctamente las formas de prevenir la transmisión (métodos anticonceptivos de barrera y como usarlos).
+
+¿Cómo promover la sexualidad en la escuela?
+Una educacion en sexualidad efectiva debe incluir oportunidades que les permitan explorar sus valores y actitudes, poniendo en práctica competencias esenciales para la toma de decisiones para elegir con fundamento la forma que desea conducir su vida sexual.
 
 Creación de programas y servicio en salud pública
 Las charlas en los colegios, las campanas en tv publica, las vallas publicitarias, las clases de educación sexual así
