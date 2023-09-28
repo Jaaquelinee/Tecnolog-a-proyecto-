@@ -45,4 +45,14 @@ Hay que recordar que ademas de tener lidiar Con embarazos problematicos, tener
 sexo sin las debidas  medidas de cuidado 
 tambien es un riesgo para a salud de la
 pareja, debido a las enfermedades de transmision sexual y el temido VIH
+
+
+ algunas de las claves esenciales para conseguir una buena educación sexual entre nuestros adolescentes, según un estudio de educación afectivo-sexual, son:
+ 
+• Reducir la información incorrecta que puedan tener los jóvenes
+aclarando dudas.
+• Aumentar el conocimiento y uso de información correcta
+• Clarificar y consolidar valores y actitudes positivas
+• Fortalecer las competencias necesarias para tomar decisiones
+fundamentadas y la capacidad de actuar en función de ellas
  
